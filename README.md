@@ -1,4 +1,6 @@
 # Pompoensoep 
+https://www.leukerecepten.nl/recepten/pompoensoep/
+
 Geniet extra van de herfst met dit heerlijke basisrecept voor verse pompoensoep die eenvoudig en snel te maken is
 
 # ingrediënten
